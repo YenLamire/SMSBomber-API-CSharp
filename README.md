@@ -2,4 +2,4 @@
 
 !! Information !!
 
-To be only used educationally, this application has been made for educational purposes and not the intent to harm other people/entity
+To be only used educationally, I have no responsibility for what you do with this application
